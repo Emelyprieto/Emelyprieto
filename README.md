@@ -2,11 +2,16 @@
 
 HOLI
 Naci en chicago y en mi tiempo ahi cambie mucho de casas y escuelas , asi que el cambio no me gusta tanto. 
-Me encantan los gatos , TENGO 5 
-Amo EL COLOR ROJO y a melody 
-melissa es mi novia 
-me gustan mucho las peliculas de miedo
-busto
+Me encantan los gatos , TENGO 5.
+
+Amo EL COLOR ROJO y a melody.
+
+melissa es mi novia.
+
+me gustan mucho las peliculas de miedo.
+
+busto.
+
 Mad miliskin, cilian murphy y pedro pascal. 
 
 
