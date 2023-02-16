@@ -1,6 +1,5 @@
 ### Hi there 👋
 
-<!--**Emelyprieto/Emelyprieto** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 HOLI
 Naci en chicago y en mi tiempo ahi cambie mucho de casas y escuelas , asi que el cambio no me gusta tanto. 
 Me encantan los gatos , TENGO 5 
